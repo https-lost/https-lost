@@ -1,5 +1,1 @@
 - 👋 Hellooo, I’m @https-lost
-- 👀 I’m interested in drawing
-- 🌱 I’m currently learning computer engineering
-- 😄 My pronouns are he/she
-- ⚡ Fun fact: I speak english and spanish!
